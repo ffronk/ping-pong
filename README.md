@@ -5,4 +5,4 @@
 Тематика: (еще придумаю).
 
 
-ffronk|hyro (copyright reserved '<3')
+ffronk | hyro (copyright reserved '<3')
